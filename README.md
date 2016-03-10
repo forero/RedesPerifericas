@@ -1,0 +1,2 @@
+# RedesPerifericas
+ideas recurrentes
